@@ -4,3 +4,7 @@
 Yassine ABOUOTHMAN
 
 Jobless
+
+09/08/1990
+
+Paris
